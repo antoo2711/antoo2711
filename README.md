@@ -1,3 +1,1 @@
-hello, i'm a programmer and i love javascript, html and css. bye :)
-
-comunque sono italiano
+https://www.youtube.com/watch?v=cSQTZoZPJzs&list=PLN1LPImPw_PlDRy10sDskVGszKZcbXaDn&index=3
